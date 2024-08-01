@@ -9,5 +9,4 @@ utilizo esse espaço para minha organização e compartilhamento dos meus projet
 você pode entrar em contato comigo 🐈‍⬛
 00001102831669sp@al.educacao.sp.gov.br
 
-https://images.app.goo.gl/GU1wrxaz5HikcUtv9
-![](https://images.app.goo.gl/GU1wrxaz5HikcUtv9)
+![](https://media.tenor.com/8RU0fBqotN0AAAAi/ryan-gosling.gif)
